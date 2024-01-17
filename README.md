@@ -1,4 +1,4 @@
-# **ДАВАЙТЕ ЗНА*COMMIT*ЬСЯ!**
+# ДАВАЙТЕ ЗНА*COMMIT*ЬСЯ!
 
 ![/about-me/karlson.jpg"](https://ic.pics.livejournal.com/tanjand/44781189/103446489/103446489_original.jpg)
 

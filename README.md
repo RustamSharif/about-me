@@ -1,7 +1,9 @@
 # *ДАВАЙТЕ ЗНА*"COMMIT"*ЬСЯ!*
 
 ![/about-me/karlson.jpg"](https://ic.pics.livejournal.com/tanjand/44781189/103446489/103446489_original.jpg)
- <img src="https://ic.pics.livejournal.com/tanjand/44781189/103446489/103446489_original.jpg alt="image" style="width:300px;height:auto;">
+
+<img src="https://ic.pics.livejournal.com/tanjand/44781189/103446489/103446489_original.jpg alt="image" style="width:300px;height:auto;">
+
 ## Буду краток
 
 ![](http://d.ibtimes.co.uk/en/full/1446188/vladimir-putin.jpg)

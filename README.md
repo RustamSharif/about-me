@@ -2,7 +2,7 @@
 
 
 
-<img src="https://ic.pics.livejournal.com/tanjand/44781189/103446489/103446489_original.jpg alt="[image](https://ic.pics.livejournal.com/tanjand/44781189/103446489/103446489_original.jpg)" style="width:300px;height:auto;">
+<img src="https://ic.pics.livejournal.com/tanjand/44781189/103446489/103446489_original.jpg" width="100" height="100" />
 
 ## Буду краток
 

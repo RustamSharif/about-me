@@ -1,6 +1,6 @@
 # *ДАВАЙТЕ ЗНА*"COMMIT"*ЬСЯ!*
 
-![/about-me/karlson.jpg"](https://ic.pics.livejournal.com/tanjand/44781189/103446489/103446489_original.jpg)
+![/about-me/karlson.jpg"](https://ic.pics.livejournal.com/tanjand/44781189/103446489/103446489_original.jpg width="200" height="200)
 <img src="https://ic.pics.livejournal.com/tanjand/44781189/103446489/103446489_original.jpg width="200" height="200">
 ## Буду краток
 

@@ -1,6 +1,6 @@
 # ДАВАЙТЕ ЗНАCOMMITЬСЯ!
 
-![](/about-me\karlson.jpg)
+![](/about-me/karlson.jpg)
 
 ## Буду краток
 

@@ -12,4 +12,5 @@
 
 ### _Люблю путешествовать на машине с семьей._
 
-### *Я соблюдающий мусульманин, стараюсь им быть, по крайней мере.*[😇](https://w7.pngwing.com/pngs/134/577/png-transparent-emoji-sticker-smiley-emoticon-computer-icons-emoji-art-emoji-smirk-smile.png)https://w7.pngwing.com/pngs/134/577/png-transparent-emoji-sticker-smiley-emoticon-computer-icons-emoji-art-emoji-smirk-smile.png
+### *Я соблюдающий мусульманин, стараюсь им быть, по крайней мере.*
+![](https://thumbs.dreamstime.com/b/стороны-благословил-смайлик-высокое-качество-на-стороне-белого-vectoremoji-183418228.jpg)

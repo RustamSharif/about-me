@@ -3,6 +3,7 @@
 ![/about-me/karlson.jpg"](https://ic.pics.livejournal.com/tanjand/44781189/103446489/103446489_original.jpg)
 
 ## Буду краток
+![](http://d.ibtimes.co.uk/en/full/1446188/vladimir-putin.jpg)
 
 ### *Меня зовут Рустам. Мне 48 лет. Среднестатистический "россиянин" из провинции, который решил покодить, пока есть время до пенсии.* إن شاء الله
 

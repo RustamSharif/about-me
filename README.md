@@ -1,6 +1,6 @@
 # ДАВАЙТЕ ЗНАCOMMITЬСЯ!
 
-<image src=""C:\Users\Abu Aisha\OneDrive\Рабочий стол\about-me\103446489_original.jpg""
+<image src="C:\Users\Abu Aisha\OneDrive\Рабочий стол\about-me\103446489_original.jpg"
 
 ## Буду краток
 

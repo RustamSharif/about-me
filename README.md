@@ -1,9 +1,6 @@
 # *ДАВАЙТЕ ЗНА*"COMMIT"*ЬСЯ*!
 <img src="https://ic.pics.livejournal.com/tanjand/44781189/103446489/103446489_original.jpg" width="450" height="400" />
 
-## Буду краток
-<img src="http://d.ibtimes.co.uk/en/full/1446188/vladimir-putin.jpg" width="450" height="400" />
-
 ### *Меня зовут Рустам. Мне 48 лет.*
 
 ### *Среднестатистический "россиянин" из провинции, который решил покодить, пока есть время до пенсии.* إن شاء الله

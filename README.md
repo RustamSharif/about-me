@@ -1,6 +1,6 @@
 # ДАВАЙТЕ ЗНАCOMMITЬСЯ!
 
-![](/about-me/karlson.jpg")
+![/about-me/karlson.jpg"](https://ic.pics.livejournal.com/tanjand/44781189/103446489/103446489_original.jpg))
 
 ## Буду краток
 
@@ -14,4 +14,4 @@
 >
 > *Я соблюдающий мусульманин, стараюсь им быть, по крайней мере.*:innocent:
 >
-> **Ссылка на мою страницу на GitHub: [@Abu Aisha](https://github.com/Abu Aisha)**
+> **"Когда ничего не остается, остается вера"**

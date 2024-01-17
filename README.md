@@ -1,5 +1,5 @@
 # *ДАВАЙТЕ ЗНА*"COMMIT"*ЬСЯ!*
-<img src="https://ic.pics.livejournal.com/tanjand/44781189/103446489/103446489_original.jpg" width="400" height="400" />
+<img src="https://ic.pics.livejournal.com/tanjand/44781189/103446489/103446489_original.jpg" width="500" height="400" />
 
 ## Буду краток
 
